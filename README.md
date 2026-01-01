@@ -1,9 +1,11 @@
 ## hai !!
 have a good day whoevers reading this though !! ^,...,^
+(p.s. I apologize to anyone I've ragebaited or just gen have been mean to)
 
 DNI
 - Proshippers/Comshippers/darkshippers (unless we were already friends before this was made, meaning im comfy with you, you can int, just don’t talk about those ships with me. But if i dont know you, dni.)
 - DW fandom (MOST fandom dnis dont apply to friends)
+- Ex-Friends, and friend's ex-friends.
 - CRK fandom 
 - Under 12/over 18 (unless we're already friends and you turn 18, or we were already friends before this was made.)
 - Jimmy Urine supporters
@@ -29,14 +31,9 @@ BYI
 - If I make you uncomfortable please tell me !!
 - If you send me a whisper and I don't respond, it's most likely because I'm offtab or afk, but I will respond eventually !!
 - Yes, I enjoy Hazbin Hotel and Helluva Boss, but I DO NOT SUPPORT VIV.
-- I'm very forgetful so if I forget your name, I will ask for your name and pronouns so I can make a friend note. ^^
+- I'm very forgetful so if I forget your name, I apologize.
 - Don't direct sexual jokes towards me, I AM A MINOR.
 - I will most likely move to a different area if I feel left out, theres someone I don't like or don't wanna be around, I'm uncomfortable, or if I'm not in the mood to interact.
-
-OTHER INFO
-
-- I use Gee/Gerard, but you can call me Party Poison aswell !! If you'd rather call me something else that's okay just ask before doing it !!
-- I use He/Him ^,...,^
 
 FANDOMS
 
@@ -47,7 +44,8 @@ FANDOMS
 - WARRIORS
 - WINGS OF FIRE
 - SANDERS SIDES
-That's all friends !!
+
+okay gen no clue what to put now so bye !!
 
 
 
